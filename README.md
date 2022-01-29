@@ -1,5 +1,6 @@
 # Filing
 FILING BY EXPERT INDIA'S LARGEST ONLINE COMPLIANCE SERVICES PLATFORM
+
 Definition of financial gain Tax?
 Income tax could be a tax charged on the annual financial gain attained by a personal. the number of tax paid can depend upon what quantity cash you earn as financial gain over a yr. One will proceed with revenue enhancement payment, TDS/TCS payment, and Non-TDS/TCS payments on-line. All taxpayers should fill within the relevant details to create these payments. the whole method becomes straightforward and fast.
 Income tax for FY 2020-21 applies to all or any residents whose annual financial gain exceeds Rs.2.5 lakh p.a. the best quantity of tax a personal might pay is half-hour of their financial gain and cess at four-dimensional if their financial gain is over Rs.10 lakh p.a.
